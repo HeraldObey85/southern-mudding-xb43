@@ -1,4 +1,4 @@
-#  
+#  automatic southern mudding Script is the best southern mudding Script, featuring auto-upgrade and esp. Safe and powerful for all your needs.
 
 
 
